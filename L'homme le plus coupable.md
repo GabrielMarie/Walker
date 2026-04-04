@@ -4,7 +4,7 @@ La faute
 
 Première partie :
  
-L'homme le plus coupable de l'univers
+L'homme le plus coupable de l'univers (de tout les temps)
 
 Journal de bord du capitaine Walker, Matricule 20 011 214;
 

@@ -2,7 +2,11 @@ Chapitre I
 
 Exister pour rien
 
-Le bureau du capitaine est une pièce sombre, rectangulaire et sans fenêtre. Au milieu de la pièce se trouve un bureau métallique sur lequel est éparpillée une tonne de papier mal classé. Un ordinateur allumé, placé sur ce même bureau, nous permet de voir les traits fatigués d'un homme dénommer Capitaine Walker.
+Le bureau du capitaine est une pièce sombre, rectangulaire et sans fenêtre. Les murs sont constituer d'un enchênement de grande plaque d'acier qui font tout le tour de la pièce. Ses plaque d'acier sont d'un gris mélatique recouvers d'une finne couche d'oxide que le temps, la poussière, la graisse, l'oxigère enrichie du vaiseau, et la salleter ont noirci. la monotonisité des murs est briser par la présence, au millieux d'un des murs, d'une porte coulissante encastré dans le mur.
+Cette piéce est habilé, comme seuls meubles, de deux bibliothèques 
+
+Ses plateaux d'acier sont cabosser et grafigner par endroit.
+Au milieu de la pièce se trouve un bureau métallique sur lequel sont éparpillées une tonne de papier mal classé. La lumière d'un ordinateur allumé, placé sur ce même bureau, nous permet de voir les traits fatigués du visage usée de ce qui était autre fois un homme.
 
 - Salutation capitaine Walker, dit une voix de femme à travers un brouillard de parasite rappelant au capitaine Walker à quels points son vaisseau a besoin de maintenance. Vous devriez aller vous coucher, votre dernière sieste remonte à plus de 72 heures.
 
