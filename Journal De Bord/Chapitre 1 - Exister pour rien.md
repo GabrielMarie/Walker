@@ -1,5 +1,5 @@
 Chapitre I
-
+3
 Exister pour rien
 
 Le bureau du capitaine est une pièce sombre, rectangulaire et sans fenêtre. Les murs sont constituer d'un enchênement de grande plaque d'acier qui font tout le tour de la pièce. Ses plaque d'acier sont d'un gris mélatique recouvers d'une finne couche d'oxide que le temps, la poussière, la graisse, l'oxigère enrichie du vaiseau, et la salleter ont noirci. La monotonisité des murs est briser par la présence d'une porte coulissante encastré situer au centre d'un des murs.
