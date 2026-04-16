@@ -20,3 +20,14 @@ Evangeline ne parlera plus a walker apré avoir entendu ce qu'il a fait à merc�
 Walker perd mecédaise mais gangne le tire de capitaine
 
 Evangeline est le supra ordinateur (du moin une partie) et c'est pour elle que Walker à quitter Mercédès. Mais il ne lui dira jamais. (peut-etre à sa mort). Car on se rappelle que walker voulait libéré la sience qui est incarné par la supra calculatrice
+
+
+
+
+Mercédès découvre le monde à travers les mots de Walker, et Walker découvre une forme de bonheur simple, humain.
+
+
+
+Et Évangéline, une intelligence artificielle, lui rappelle constamment une chose :
+
+👉 il n’a jamais compris le verbe d’aimer

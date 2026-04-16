@@ -33,9 +33,9 @@ Je ne voudrais pas être lui, mais je sais qu'il n'a rien fait pour être lui-m�
 
 Il y eu un court moment de silence, dû au fait que je ne savais plus quoi dire pour alimenter la discussion. Je ne savais pas comment expliquer ce sentiment de culpabilité que je ressentais.
 
-- Je sais que ça peut avoir l'aire de pas grand-chose, et que ça ne mérite peut-être pas un si long chapitre, mais c'est juste que si j'avais été à sa place, j'aurais vraiment souffert d'avoir perdu Mercédès. Elle était si sage, si belle et unique. La perde aurait rendu tout mon existence triste et sans but.
+- Je sais que ça peut avoir l'aire de pas grand-chose, et que ça ne mérite peut-être pas un si long chapitre, mais c'est juste que si j'avais été à sa place, j'aurais vraiment souffert d'avoir perdu Mercédès. Elle était si sage, si belle et unique. La perde aurait rendu tout mon existence triste et sans but...
 
-Je marquai un autre silence, puis je repris.
+Je marquai un autre silence marquer d'une hésitation, puis je repris.
 
 - Je sais ce que ça fait de vivre seul. Quelquefois je me demande : à quoi bon vivre si le meilleur est derrière moi. Donc, oui je me sens coupable et je le prend en pitié.
 

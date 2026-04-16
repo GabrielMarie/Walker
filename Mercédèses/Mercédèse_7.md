@@ -35,7 +35,7 @@ Elle prit du temps avant de comprendre à quoi je faisais allusion. Puis elle po
 
 - Je ne regarde pas, je ne regarde pas, répondis-je pour tenter de la rassurer.
 
-Elle devint tout rouge, et ne sachant quoi faire ni où aller, elle tétanisa sur place. J'admets que j'aurais pu amener le sujet d'une autre manière différente.
+Elle devint tout rouge, et ne sachant quoi faire ni où aller, elle tétanisa sur place. J'admets que j'aurais pu amener le sujet d'une manière différente.
 
 J'enlevais mon chandail noir mouillé que je tordais devant-elle avant de lui offrir.
 
