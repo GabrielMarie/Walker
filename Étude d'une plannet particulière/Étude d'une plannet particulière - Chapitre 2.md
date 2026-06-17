@@ -1,15 +1,15 @@
 
 CHAPITRE ?
 
-À la mémoire d'une autre planète
+À la mémoire d'une autre planète (fini)
 
 Étude géologique de Laila
 
-Laila est une planète tellurique avec un centre liquide et une croute solide. Laila est une planète extrêmement volumineuse et cela lui octroie une croute extrêmes épaisse, c'est-à-dire qu'il y a une distant considérable entre son noyau, et sa surface ce qui lui procure une protection permanant contre les mouvements des plaques tectonique. En d'autres mots, les continents sur Laila sont statiques et ne sont pas sujette au déplacement des plaques tectoniques. Laila tourne très lentement autour sur elle-même, et encore plus lentement autour de son étoile. Un jour lailaien me paraitrai trois ou quatre vies d'Homme.
+Laila est une planète tellurique avec un centre liquide et une croute solide. Laila est une planète extrêmement volumineuse et cela lui octroie une croute extrêmes épaisse, c'est-à-dire qu'il y a une distant considérable entre son noyau, et sa surface ce qui lui procure une protection permanant contre les mouvements des plaques tectonique. En d'autres mots, les continents sur Laila sont statiques et ne sont pas sujette au déplacement des plaques tectoniques. Laila tourne très lentement sur elle-même, et encore plus lentement autour de son étoile. Un jour lailaien me paraitrai trois ou quatre vies d'Homme.
 
 Je vous évite les informations inutiles sur la composition chimique des sols de Laila.
 
-La surface de Laila est composée à 80% d'océan et a 20% de continent. On compte un océan : qu'on appelle très pratiquement « océan », deux continuant : qu'on nomme tout aussi pratiquement le continent nord et le continent sud, et finalement une grande quantité d'iles dispersé vas et là sur l'océan.
+La surface de Laila est composée à 80% d'océan et a 20% de continent. On compte un océan : qu'on appelle très pratiquement « océan », deux continuant : qu'on nomme tout aussi pratiquement le continent nord et le continent sud, et finalement une grande quantité d'iles dispersé ça et là sur l'océan.
 
 Autour des continent, l'océans fait environ un à deux mètres de profondeur sur un rivage de plusieurs kilomètres. Ensuite il y a un camionne sous-marin. Un endroit où le plancher de l'océan tombe à pic sur vingt kilomètres jusqu'à l'endroit le plus profond de l'océan où repose un immense manteau de sable noir et de carcasse de ce qu'était une fois la vie et qui n'est que le support abandonner de ce qu'est a présent la mort. La mort mourant paisiblement dans la noirceur même des abisse de Laila. Dans les fins font du camionne, la température et la pression sont tel que l'eau y est en ébullition permanente.
 
@@ -21,7 +21,7 @@ La vie est apparue sur cette terre, il y a 4 000 000 de jours Lailaien par un s
 
 Ce sont ces vagues qui ont induit dans la vie un continuel mouvement, comme une poussé qui ne décélère jamais, comme un élan des eaux qui a guidé la vie sur la mer, et qui c'est perpétuer sur la terre sous forme d'un perpétuel déplacement indispensable à la survie et qui mène encore la vie 4 000 000 de jours plus tard.
 
-Car, pour éviter de sombrer dans la noirceur des nuits inhabitables de Laila, la vie a développé un comportement nomade, toujours a la recherche de la lumière et de la chaleur. Il est fou de s'imagine que sans le Détroit de l'Isthme, sans cette ouverture entre les deux continent, la vie, qui était purement aquatique, n'aurais jamais pu traverser la croisiaison et suivre son soleil. Ce détroit a donc nourri ses propres guerres des vies qu'elle a sauvé elle-même.
+Car, pour éviter de sombrer dans la noirceur des nuits inhabitables de Laila, la vie a développé un comportement nomade, toujours a la recherche de la lumière et de la chaleur. Il est fou de s'imagine que sans le Détroit de l'Isthme, sans cette ouverture entre les deux continent, la vie, qui était purement aquatique, n'aurais jamais pu traverser la croisiaison et suivre son soleil. Ce détroit a donc nourri ses propres guerres des vies qu'elle a elle-même sauvé.
 
 Et c'est ainsi, que la vie évolua sur Laila, dans un constant déplacement, et les végétaux comme les animaux marin ou terrestre, ce déplace perpétuellement, parfois même dans une cadence follement paramétrée. Par exemple, il existe des espèces, des végétaux comme des animaux, qui peuvent vivre jusqu'à un ou deux jours (environ 300 à 600 ans) et alors il se déplace perpétuellement afin d'éternellement resté au jour du soleil. D'autre espèce, ne vive que quelques quartiers de jours. Celle si son parfois plus complexe. Souvent, les individus naissent au niveau de la moitié ou du deux trières de la zone habitable, et comme ils sont jeunes et en forme, il remonte jusqu'au matin de la zone habitable. Pendant qu'ils remontent, ils apprennent tout de leur espèce, de la vie, de leur croyance et de leur science. Une fois arriver au début du jour, ils quittent leur mode de vie nomade pour le sédentarisme. Ensuite, ils trouver un ou des partenaires, laisse la vie et la journée défiler, enseigne la vie, les croyances et la science au jeune qui passe, sous leurs yeux, en direction du matin, tout comme eux passait autre fois, et rendu au deux tière ou à la moitié de la zone habitable, ils se reproduise pour laisser aller leur enfant comme on les avait laisser aller il y a jadis.
 

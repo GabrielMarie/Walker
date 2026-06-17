@@ -1,7 +1,7 @@
 
 Chapitre XXI
 
-Le cueilleur d'âme
+Le cueilleur d'âme(utiliser autrement mais pas dans le capitaine walker par exemple je pourrais fair une autre histoire et genre me servir de ça)
 
 L'automne
 

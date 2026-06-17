@@ -1,7 +1,7 @@
 
 Chapitre III
 
-Le première homme I
+Le première homme I(fini (allonger un peu peut-être?))
 
 Journal de bord du capitaine Walker, Matricule 20 011 214;
 

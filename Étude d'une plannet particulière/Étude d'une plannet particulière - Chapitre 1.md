@@ -2,7 +2,7 @@ CHAPITRE ?
 
 À la mémoire d'une autre planète
 
-Introduction
+Introduction(fini)
 
 Journal de bord du capitaine Walker, Matricule 20 011 214;
 
@@ -10,7 +10,7 @@ Walker est évaché au siège du capitaine, pâle et inanimé mais pourtant bien
 
 Ignorant ce tableau figé qui illustre une des plus belles inventions de l'être humain, l'homme en est à c'est réflexion habituelle. Il pense à la médiocrité de sa situation et se dit en lui-même que « Après tout, tous les Hommes ne sont que des cadavres en devenir. » et cela le rassure suffisamment pour cligner des yeux un instant.
 
-- Dans la pénombre intersidérale, le vaisseau sans nom voilage sans but à plusieurs fois la vitesse de la lumière comme s'il était presser d'aller nulle part! S'exclamât Évangeline à travers les brui grisonnant des vielles enceintes, comme si elle était la narratrice de l'univers tout entier.
+- Dans la pénombre intersidérale, le vaisseau sans nom, voyage sans but, à plusieurs fois la vitesse de la lumière comme s'il était presser d'aller nulle part! S'exclamât Évangeline à travers les brui grisonnant des vielles enceintes, comme si elle était la narratrice de l'univers tout entier.
 
 Walker, comme à son habitude, ne répondit rien. Il ne voulait pas l'encourager.
 
@@ -62,7 +62,7 @@ Il traversait le long corridor principal en direction de l'arrière du vaisseau.
 
 Walker voyait, dans la pénombre qui lui faisait face, des hombres se mouvoir. Était-ce son imagination? Nul ne le savait. Une créature, un genre de canidé, sortie de l'ombre en pensant faire un bon repas, mais lorsqu'il vue le visage de Walker, ce dernier s'en retourna aussi tôt, par peur de servie de repas.
 
-Et alors qu'il arrivait devant cette porte coulissant et airmétique qui menais à la chambre tampon, une chambre qui serte de rempart de sécurité entre le débarcadère sur le monde extérieure et l'habitacle intérieur du vaisseau un monstre le prit par surprise. C'était une sorte de d'araignée géante qui lui arrivait aux genoux et qui n'avais pas de globe oculaire, six de mandibule et un gros dar qui lui servais à paralyser et sucer le sang de ses victimes. La créature lui sauta sur le dos et s'y agrippa. Walker pensait en lui-même, tout en se débattent, que cette créature ne pourrait pas digérer son sang et que la toxine paralysante n'aurait aucun effet sur lui étant donné la différence entre l'Homme et ses proie habituel. Walker pris une des pates que la créature avait agripper sur son épaule et la tira au-devant de lui d'un grand coup de bras à la même manière qu'on pose sur le sol un sac de patate qu'on transporte sur notre épaule. Pensant que cela aurait eu pour effet d'amener toute la créature avec la pâte, il se surpris de voir que la pâte c'était déraciner de la créature. Il pensa en lui-même que le quintidé était de nature très fragile. Alors il fit la même chausse avec l'autre pate qui se trouvait sur son autre épaule. La créature bondie au sol pour battre en retraite, mais Walker eu le temps de se retourner et de poser un pied sur une de ses pates pour la retenir et la mettre en joue avec son arme. Puis Walker pensa qu'elle avait bien compris la leçon et ne recommencerais pas, alors il l'épargna en levant son pied et en la regardant s'enfuir dans la jungle du vaisseau.
+Et alors qu'il arrivait devant cette porte coulissant et airmétique qui menais à la chambre tampon, une chambre qui serte de rempart de sécurité entre le débarcadère sur le monde extérieure et l'habitacle intérieur du vaisseau un monstre le prit par surprise. C'était une sorte de d'araignée géante qui lui arrivait aux genoux et qui n'avais pas de globe oculaire, six mandibule et un gros dar qui lui servais à paralyser et sucer le sang de ses victimes. La créature lui sauta sur le dos et s'y agrippa. Walker pensait en lui-même, tout en se débattent, que cette créature ne pourrait pas digérer son sang et que la toxine paralysante n'aurait aucun effet sur lui étant donné la différence entre l'Homme et ses proie habituel. Walker pris une des pates que la créature avait agripper sur son épaule et la tira au-devant de lui d'un grand coup de bras à la même manière qu'on pose sur le sol un sac de patate qu'on transporte sur notre épaule. Pensant que cela aurait eu pour effet d'amener toute la créature avec la pâte, il se surpris de voir que la pâte c'était déraciner de la créature. Il pensa en lui-même que le quintidé était de nature très fragile. Alors il fit la même chausse avec l'autre pate qui se trouvait sur son autre épaule. La créature bondie au sol pour battre en retraite, mais Walker eu le temps de se retourner et de poser un pied sur une de ses pates pour la retenir et la mettre en joue avec son arme. Puis Walker pensa qu'elle avait bien compris la leçon et ne recommencerais pas, alors il l'épargna en levant son pied et en la regardant s'enfuir dans la jungle du vaisseau.
 
 Puis il entra dans la chambre tampon. Cette dernière était restée intacte, c'est-à-dire que les caméra, micro et haut-parleur fonctionnait encore,
 
@@ -74,9 +74,9 @@ Le drone est une petite boule grise avec un écran noir, munie d'un moteur antig
 
 - Vraiment, je peux venir ?! Je pensais que tu étais tanné de d'être « prisonnier avec \[moi\] » dans cette « boite de conserve mal laver qui \[me\] sert de corps »? dit-elle en citant les mots de Walker.
 
-- Oui c'est vrai... est-ce que je devrai changer d\'avis\... ce questionnât-il
+- Oui, c'est bien vrai... Je devrai peut-être changer d\'avis\... ce questionnât-il
 
-- Oublier ce que j'ai dit, il me fait plaisir de vous accompagner monsieur.
+- Je prépare le drone, s'empressat-elle de répondre.
 
 Évangéline était très excité à l'idée d'une sortie. Cela faisait longtemps qu'elle n'avait pas eu la chance de prendre un peu l'aire. Très rapidement elle s'empara du drone, et la boule sortie de sa boite pour se mettre à flotter aux milieux de la pièce.
 

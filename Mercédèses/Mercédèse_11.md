@@ -25,9 +25,9 @@ C'était étrange car, je n\'avais même pas croisé l'ombre d'un garde à ma po
 
 Pourtant, je savais que le Supra Calculateur m'avait repéré, c'était inévitable, mais je ne savais pas pourquoi il n'avait pas averti la sécurité.
 
-Finalement, j'arrivais à un long couloir au bout duquel se trouvait par deux grandes portes de titane. Derrière ces portes se trouvait le Cerveau. Je craignais que ce soit un piège, alors j'avançais très prudemment tout en sachant que, si le supras calculateur voulait me tendre un piège, il y parviendrait inévitablement.
+Finalement, j'arrivais à un long couloir au bout duquel se trouvait deux grandes portes de titane. Derrière ces portes se trouvait le Cerveau. Je craignais que ce soit un piège, alors j'avançais très prudemment tout en sachant que, si le supras calculateur voulait me tendre un piège, il y parviendrait inévitablement.
 
-À vrai dire, on ne pouvait pas grand-chose contre le supra calculateur. Il avait toujours plusieurs pas d'avance sur nous. Il pouvait prédire chacun de nos mouvements avant même qu'on pense à se mouvement, chacune de nos pensé avant même qu'on puisse penser. C'est lui qui décidait, et c'était nous qui subissions.
+À vrai dire, on ne pouvait pas grand-chose contre le supra calculateur. Il avait toujours plusieurs pas d'avance sur nous. Il pouvait prédire chacun de nos mouvements avant même qu'on execut n'importe quelle mouvement, chacune de nos pensé avant même qu'on puisse commencer à penser. C'est lui qui décidait, et c'était nous qui subissions.
 
 Alors que j'avançais dans cette dernière ligne droite, l'idée me vint que le supra calculateur voulait que je réussisse ma mission. Lorsque j'arrivais devant les portes en titane et que je les entendis se déverrouiller, je n'avais plus le moindre doute. Le supra calculateur voulait me rencontrés.
 
@@ -59,7 +59,7 @@ Je relevais le regard comme si je parlais à la pièce.
 
 - Si c'est une blague, alors elle n'est vraiment pas drôle. C'est très dangereux de venir jouer ici monsieur! Repartez immédiatement.
 
-Exaspéré, je l'ignorais et repris mon travail pour une seconde fois. Je pris la poigné dans mes mains et la tira vers le haut ce qui fit suivre un plateau qui était incrusté dans la table, juste en dessoude la poigné. Sous le plateau, il y avait un gros bloc noire rectangulaire avec des connexions et des petites lumières.
+Exaspéré, je l'ignorais et repris mon travail pour une seconde fois. Je pris la poigné dans mes mains et la tira vers le haut ce qui fit suivre un plateau qui était incrusté dans la table, juste en dessou de la poigné. Sous le plateau, il y avait une boite bleu avec une petite poignée chromé, des connexions filaires et des petites lumières.
 
 - Ha ha ha! Une blague! S'exclamais la calculatrice.
 

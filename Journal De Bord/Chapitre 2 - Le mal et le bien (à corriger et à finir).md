@@ -2,8 +2,7 @@
 
 Chapitre II
 
-Le mal et le bien (à corriger et à finir)
-
+Le mal et le bien (à enlever) 
 Journal de bord du capitaine Walker, Matricule 20 011 214;
 
 J'ai toujours eu la conviction que le mal ne pouvait gagnée. Tout d'abord définissons le bien et son contraire; le mal. Je sais que dans une dispute, des deux partis se disent être le bien tout en qualifiant l'autre partie de mal. Nécessairement, en suivant cette logique, le gagnant et le bien puisque l'opposant n'est plus là pour le traiter de mal. Le problème que je note est dans la définition du bien et du mal. Selon moi, le bien est ce que qualifierai de bien, une tierce personne, qui n'a aucun parti pris et qui ne subit aucune conséquence de la dispute, et ce, peu importe son issue. Ce serait comme si dieu nous jugeait, et comme si s'était lui qui décidai du bien et du mal.

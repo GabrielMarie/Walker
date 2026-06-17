@@ -19,13 +19,13 @@ Par la suite, il y eu une cérémonie organisée par les institutions qui régis
 
 Après quoi, Ulsar est devenu une planète dépotoir où les vaisseaux venais s'échoué pour être recyclé avec tous les restes du supra calculateur, et on n'entendit plus jamais parler d'Ulsar.
 
-Après la guerre, j'avais gagné 10 ans, un titre et un énorme vaisseau mais au fond ce que je voulais, c'était revenir 10 ans en arrière, m'appeler Walker et vivre dans une petite habitation loin de la folie des hommes, loin guerre, sur la falaise, près des vague et du beau temps, tout près du cœur de Mercédèse.
+Après la guerre, j'avais gagné 10 ans, un titre et un énorme vaisseau mais au fond ce que je voulais, c'était revenir 10 ans en arrière, m'appeler Walker et vivre dans une petite habitation loin de la folie des hommes, loin de la guerre, sur la falaise, près des vague et du beau temps, tout près du cœur de Mercédèse.
 
 Je suis retourné sur Capristia et je me suis rendu à l'endroit d'autre fois. Debout en haut de l'escalier je voyais que deux balafrènnes avais poussé devant l'horizon qui jadis arrosait la catalane de son vent salin. Je voyais aussi que le temps et les racines avait donnée du relief au petit chemin de brique jaune qui était jadis si droit sous ses pieds. Je suis allé au bout de cet épave doré
 
 Comme je le faisait autre fois lorsque je voulais cueillir des rayons de lune sur sa peau, mais sous l'épaisse végétation qui avait envahi les lieux je ne voyais plus même brillé l'éclat majestueux du marbre blanc quel avait dans les yeux.
 
-Je suis allé au 3^e^ étage, 6^e^ habitation pour voir si elle y était. C'était la nuit comme à la première fois que j'y suis allé. J'ai frappé et la porte ses ouvertes sur une vielle dame. C'était mon enseignante lorsque j'étudiait à Capristi. À cause de l'effet relativiste, elle avait vieilli de 20 ans. Elle m'a reconnue comme étant Walker et m'a invité à rentrés en me disant qu'elle avait à me parler. Je suis entré cette habitation mal éclairée et j'ai immédiatement reconnus quelques meubles que Mercédès utilisait. Nous nous sommes assis à une petite table ronde dans qu'il y avait au centre de la pièce.
+Je suis allé au 3^e^ étage, 6^e^ habitation pour voir si elle y était. C'était la nuit comme à la première fois que j'y suis allé. J'ai frappé et la porte ses ouvertes sur une vielle dame. C'était mon enseignante lorsque j'étudiait à Capristi. À cause de l'effet relativiste, elle avait vieilli de 20 ans. Elle m'a reconnue comme étant Walker et m'a invité à entrés en me disant qu'elle avait à me parler. Je suis entré cette habitation mal éclairée et j'ai immédiatement reconnus quelques meubles que Mercédès utilisait. Nous nous sommes assis à une petite table ronde dans qu'il y avait au centre de la pièce.
 
 Elle m'a raconté que Mercédès avait été très bouleversé par mon départ. Elle avait repris ses activités d'avant, même si elle allait encore quelque fois à la plage. Malgré son deuil, Monoloy continuait de lui faire la cour, mais elle n'en voulait pas et disait quelle attendait l'homme des étoiles.
 

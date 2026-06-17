@@ -1,6 +1,6 @@
 Chapitre XXIII
 
-Les efforts
+Les efforts(poubelle...)
 
 Journal de bord du capitaine Walker, Matricule 20 011 214;
 

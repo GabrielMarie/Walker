@@ -7,7 +7,7 @@ Capitaine Walker
 
 - Walker! Dit-elle presque effaré.
 
-Mercédès me libera de ses bras puis passa une gambe par-dessus le banc de marbre. Elle était tournée dans ma direction, avec ses gambes de chaque côté de du banc comme si elle chevauchait ce colossal destrier. Je me mis dans la même position qu'elle, mon visage en face du sien. Ses yeux de verre était humide tout comme le rebord de ses paupières. Des petits ruisseaux de larme ruisselaient tout le long de sa joue, laissant un petit ruisseau qui luisait sous les lunes. Je posais chacune de mes mains sur chacun de ses avant-bras pour lui parler gravement.
+Mercédès me libera de ses bras puis passa une gambe par-dessus le banc de marbre. Elle était tournée dans ma direction, avec ses jambes de chaque côté de du banc comme si elle chevauchait ce colossal destrier. Je me mis dans la même position qu'elle, mon visage en face du sien. Ses yeux de verre était humide tout comme le rebord de ses paupières. Des petits ruisseaux de larme ruisselaient tout le long de sa joue, laissant un petit ruisseau qui luisait sous les lunes. Je posais chacune de mes mains sur chacun de ses avant-bras pour lui parler gravement.
 
 - Mercédès, j'aurais été ravis qu'il en soit ainsi mais je dois retourner sur Ulsar.
 
@@ -51,7 +51,7 @@ Je ressentais une énorme honte d'être la cause de sa douleur, et une énorme p
 
 - Alors, Dis-moi! Qu'est-ce qu'ils ont que je ne peux pas t'offrir?
 
-- Quelque chose, hélas, que tu ne peux pas m'offrir.
+- Quelque chose, hélas, que tu ne peux pas m'offrir car je ne puis le nommer. 
 
 Puis elle accepta, au bout de long sanglot, avec beaucoup de douleur dans ses yeux et un grand pois sur son cœur, le fait que je devrais partir.
 
@@ -59,7 +59,7 @@ Puis elle accepta, au bout de long sanglot, avec beaucoup de douleur dans ses ye
 
 Je pris un moment avant de répondre. Au fond de mes pensé, je prévoyais revenir dès que la guerre serait terminée, mais je ne voulais pas qu'elle m'attende indéfiniment dans l'espoir de me voir revenir un jour qui n'existerait peut-être jamais. Alors j'ai été, clair... je n'aurais peut-être pas dû.
 
-- Je ne pense pas... non...
+- Je ne sais pas...
 
 Les petit gémissement de tristesse reprirent de plus belles, comme lorsqu'un éclairci passe au-dessus de nos têtes, pendant l'orage.
 

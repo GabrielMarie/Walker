@@ -1,6 +1,6 @@
 Chapitre XXII
 
-Y a-t-il quelque chose qui puisse vous sauver?
+Y a-t-il quelque chose qui puisse vous sauver?(la fin est bonne (la larme de walker) mais le tout est mal amener et devrai plus relater l'histoire avec Mercédès comme etant le bonheur. et si en fait ce merceaua arrivait après que waller soit la cause de la mort de mercedés et que en fait ça serait comme si Évangéline pardonnait walker. mais un peu a ec que walker veuille se tuer. c un pwu le mea culpa walker veut mourir car il nest pas satiftai de la vi quil a mener dans l'univers et c la vrai raison de son suicide )
 
 Journal de bord du capitaine Walker, Matricule 20 011 214;
 

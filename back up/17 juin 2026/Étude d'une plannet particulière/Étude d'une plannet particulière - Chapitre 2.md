@@ -1,0 +1,34 @@
+
+CHAPITRE ?
+
+À la mémoire d'une autre planète
+
+Étude géologique de Laila
+
+Laila est une planète tellurique avec un centre liquide et une croute solide. Laila est une planète extrêmement volumineuse et cela lui octroie une croute extrêmes épaisse, c'est-à-dire qu'il y a une distant considérable entre son noyau, et sa surface ce qui lui procure une protection permanant contre les mouvements des plaques tectonique. En d'autres mots, les continents sur Laila sont statiques et ne sont pas sujette au déplacement des plaques tectoniques. Laila tourne très lentement autour sur elle-même, et encore plus lentement autour de son étoile. Un jour lailaien me paraitrai trois ou quatre vies d'Homme.
+
+Je vous évite les informations inutiles sur la composition chimique des sols de Laila.
+
+La surface de Laila est composée à 80% d'océan et a 20% de continent. On compte un océan : qu'on appelle très pratiquement « océan », deux continuant : qu'on nomme tout aussi pratiquement le continent nord et le continent sud, et finalement une grande quantité d'iles dispersé vas et là sur l'océan.
+
+Autour des continent, l'océans fait environ un à deux mètres de profondeur sur un rivage de plusieurs kilomètres. Ensuite il y a un camionne sous-marin. Un endroit où le plancher de l'océan tombe à pic sur vingt kilomètres jusqu'à l'endroit le plus profond de l'océan où repose un immense manteau de sable noir et de carcasse de ce qu'était une fois la vie et qui n'est que le support abandonner de ce qu'est a présent la mort. La mort mourant paisiblement dans la noirceur même des abisse de Laila. Dans les fins font du camionne, la température et la pression sont tel que l'eau y est en ébullition permanente.
+
+Si on remonte à la surface, on peut admirer la cartographie particulière et permanente des continents. Imaginer que l'on couche deux cercles sur une sphère (ici Laila représente la sphère), un centré au pôle Nord l'autre centrés au pôle Sud. Bon maintenant, supposer que, sur une longitude de la sphère, au niveau de l'équateur, la frontière des deux cercles ne soit plus qu'a une distance de quelque kilomètre, et que, sur la longitude opposer, la frontière des deux cercles soit à une distance de plusieurs milliers de kilomètre, un étant la distance la plus grande et l'autre étant la distance la plus petit. Et bien maintenant considéré que c'est deux cercles constitues les deux seuls continents de Laila. Cette croisiaison des deux continents, qu'on retrouve aux milieux de l'équateur, peut sembler banal au premier abord et pourtant, pour cette tendre morphologie tant de guerre ont déjà vu le jour. Tant de cœur se sont tue, et tant de vie ont évolués vers la mort. Sous ces quelques mètres d'eau, et sur le sable noir, aux milieux de la tempête éternel qui y réside, il y a une nappe de sang et de cendre.
+
+Le plus poétique, dans cette macabre boucheri, c'est que dans cette nappe écarlate de haine et d'espérance déçu, ce trouve le seul endroit sur Laila où les rivaux se fusionne, pour n'en faire qu'un dans le périple de la mort. Cette croisiaison s'appelle le Détroit de l'Isthme --prononcé l'ism-- seul pont entre les deux continents.
+
+La vie est apparue sur cette terre, il y a 4 000 000 de jours Lailaien par un simple coup d'éclaire bien placer qui donna suffisamment d'énergie à des atomes d'azote et de carbone pour faire apparaitre les liaisons nécessaires à la création de la tout première chaine azoté. Ce premier chêne de vie, gisant dans l'océan, était transporté à travers le courant d'air chaud vers les courants d'air froid, par la force des vagues ainsi créé. Ce sont ces vagues qui ont permis à la vie encore trop jeune, de suivre la zone habitable qui était en continuel mouvement sur cette astre hostile qu'est Laila.
+
+Ce sont ces vagues qui ont induit dans la vie un continuel mouvement, comme une poussé qui ne décélère jamais, comme un élan des eaux qui a guidé la vie sur la mer, et qui c'est perpétuer sur la terre sous forme d'un perpétuel déplacement indispensable à la survie et qui mène encore la vie 4 000 000 de jours plus tard.
+
+Car, pour éviter de sombrer dans la noirceur des nuits inhabitables de Laila, la vie a développé un comportement nomade, toujours a la recherche de la lumière et de la chaleur. Il est fou de s'imagine que sans le Détroit de l'Isthme, sans cette ouverture entre les deux continent, la vie, qui était purement aquatique, n'aurais jamais pu traverser la croisiaison et suivre son soleil. Ce détroit a donc nourri ses propres guerres des vies qu'elle a sauvé elle-même.
+
+Et c'est ainsi, que la vie évolua sur Laila, dans un constant déplacement, et les végétaux comme les animaux marin ou terrestre, ce déplace perpétuellement, parfois même dans une cadence follement paramétrée. Par exemple, il existe des espèces, des végétaux comme des animaux, qui peuvent vivre jusqu'à un ou deux jours (environ 300 à 600 ans) et alors il se déplace perpétuellement afin d'éternellement resté au jour du soleil. D'autre espèce, ne vive que quelques quartiers de jours. Celle si son parfois plus complexe. Souvent, les individus naissent au niveau de la moitié ou du deux trières de la zone habitable, et comme ils sont jeunes et en forme, il remonte jusqu'au matin de la zone habitable. Pendant qu'ils remontent, ils apprennent tout de leur espèce, de la vie, de leur croyance et de leur science. Une fois arriver au début du jour, ils quittent leur mode de vie nomade pour le sédentarisme. Ensuite, ils trouver un ou des partenaires, laisse la vie et la journée défiler, enseigne la vie, les croyances et la science au jeune qui passe, sous leurs yeux, en direction du matin, tout comme eux passait autre fois, et rendu au deux tière ou à la moitié de la zone habitable, ils se reproduise pour laisser aller leur enfant comme on les avait laisser aller il y a jadis.
+
+Puis ils laisser la journée avancer à sa fin jusqu'a ce que la nuit tombe dans le ciel, au terminus d'une vie bien chargé. C'est une des multiples façons que certaine espèce, qui habite Laila, appréhender la vie.
+
+Il y en a d'autre... bien d'autre. Certaine on échouer, rare on réussit, mais tous ont essayé.
+
+J'aimerais dédier les prochains chapitres de mon journal à l'histoire d'une d'entre ses espèces. C'est une histoire comme toutes les histoires qui ont existé depuis la nuit des temps. C'est l'histoire de la vie et de l'amour ; l'histoire de la vie c'est l'amour.
+
+C'est l'histoire de deux représentant de l'espèce dominante, au moment où nous somme. Afin d'éviter à cette espèce d'être retrouvé par mes lecteur --si quelqu'un daigne lire mon journal-- je vais humaniser cette espèce. Cela s'adonne bien, car l'espèce en question est humanoïde, bipied avec deux membres supérieurs lui servant d'outil pour remuer son monde. Sur ce, je propose qu'on laisse ses humain --qui n'en sont pas je le rappel-- se définir par eux même.
