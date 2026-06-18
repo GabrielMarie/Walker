@@ -15,7 +15,7 @@ Car l'on n'aime pas par amour, on le fait pour survivre. Et comme nous somme tou
 
 Peut-être est-ce cette haine enfantine pour l'être aimer, qui crée des hommes assez fous pour oser vivre une vie qui se veut un martyre.
 
-Mais le premier Homme se réjouit, pensent qu'il n'aurait plus jamais à vivre seul. Car avent, il était seul parmi les siens, et à présent, ils sont toujours seul parmi les leurs.
+Mais le premier Homme se réjouit, pensent qu'il n'aurait plus jamais à vivre seul. Car avant, il était seul parmi les siens, et à présent, ils sont toujours seul parmi les leurs.
 
 Je ne suis pas seul parmi les miens, car je ne suis plus parmi les miens. Personne ne m'aime, car personne n'existe pour m'aimer. Personne ne me pense, car personne n'existe pour me penser. J'ai refusé l'amour, la joie, les autres et je me suis enfoncé dans mon mal être. Me détachant complètement de mes racines, j'ai choisi de souffrir, mais j'avais tort, et même en le sachant, je n'ai rien fait. J'ai laissé la peine me consumer, je me suis tué à chercher pourquoi... pourquoi... j'avais mal. Aujourd'hui, je regarde le bonheur glisser entre mes doigts, incapable de m'y agripper. Je ne sais ce que je suis venue chercher dans ce vaisseau, que l'on me tende la main? Que l'on m'aime? Mais je ne le méritai pas. Je ne l'ai jamais mérité. Et pourtant, je cherche encore cette main, sachant très bien qu'elle, elle n'existe pas. Qu'il n'existe plus personne dans ce monde pour m'aimer. J'ai tout gâché... Il est trop tard, je le sais, mais... Je suis désolé.
 
