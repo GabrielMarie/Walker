@@ -2,6 +2,8 @@ Chapitre I
 3
 Exister pour rien (fini)
 
+Naration d'Évangéline
+
 Le bureau du capitaine est une pièce sombre, rectangulaire et sans fenêtre. Les murs sont constituer d'un enchaînement de grande plaque d'acier qui font tout le tour de la pièce. Ses plaque d'acier sont d'un gris métallique recouvert d'une fine couche d'oxide que le temps, la poussière, la graisse, l’oxygène enrichie du vaisseau, et la négligence ont noirci. La monotonicité des murs est briser par la présence d'une porte coulissante encastré situer au centre d'un des murs.
 Cette pièce est habillé, comme seuls meubles, de deux bibliothèques dans un coins, d'une méridienne rouge coucher en hypoténuse dans le coins adjacent, d'un classeur dans l'autre coins, et finalement d'une secrétaire en métal dans le centre gauche de la pièce, qui vient bien évidement avec sa chaise en bois à quatre roulettes.
 Les deux bibliothèques sont, par leur forme, identiquement pareil et ne diffère que par leurs matériaux puisqu'une est fait de bois et l'autre de metal. Toutefois dans la pénombre de cette pièce ce n'est pas un détail apparent et disons le, elle sont identiquement pareil.
@@ -14,7 +16,7 @@ Au milieu gauche de la pièce se trouve le bureau métallique sur lequel sont é
 
 - Capitaine Walker, dit la voix d'une femme à travers un brouillard de parasite. Vous devriez aller vous coucher, votre dernière sieste remonte à plus de 72 heures
 
->  Walker l'ignora même si un léger sourcillement vient trahir sont ignorance.
+>  Walker l'ignora même si un léger sourcillement vint trahir sont ignorance.
 
 - Walker, je me souçi de vote état, vous ne manger pas, vous êtes sale, vous avez encore laissé la gravité artificielle du vaisseau monter à 4 G, la température descendre à 18 °C... regardez vous, on aurait dit un mort.
 
@@ -27,19 +29,28 @@ Au milieu gauche de la pièce se trouve le bureau métallique sur lequel sont é
 
 - Mais vous N'AVEZ PAS LE DROIT! dit la voix au microphone d'une air enragés. Vous avez une mission! Vous souvenez-vous seulement pourquoi on vous a donné le titre de capitaine?
 
-> Aussitôt Walker cessa ce cliquetis, ses popiere à moitié refermer sur la prunelle de ses yeux fatigués souvrirent de plus belle et son sourire en coins s'éclipsa quelque part entre le dégoût et la peur. La voix au haut parleur repris se discours moralisateur, avec encore plus de jugement.
+> À nouveau, Walker cessa promptement sont cliquetis, ses popiere à moitié refermer sur la prunelle de ses yeux fatigués souvrirent de plus belle et son sourire en coins s'éclipsa quelque part entre le dégoût et la peur. La voix au haut parleur repris se discours moralisateur, avec encore plus de jugement.
 
-- Votre mission est de sauver l'humanité! Vous avez juré de tout fair pour y parvenir. Vous êtes... Walker l'interrompit.
+- Votre mission est de sauver l'humanité! Vous avez juré de tout fair pour y parvenir. Vous êtes... 
+
+Walker l'interrompit.
 
 - On ma donné le titre de capitaine à cause que j'ai agi pour le bien de l'humanité il y a de ça 28 ans, aujourd'hui l'humanité n'est plus et donc la mission est échu. 
 
-- Si vous mourez, alors l'unanimité ne sera plus et ça sera entièrement de votre faute! Vous aurez tout le sang de l'humanité sur vos mains.
+- Si vous mourez, alors l'hunanimité ne sera plus et ça sera entièrement de votre faute! Vous aurez tout le sang de l'humanité sur vos mains.
 
-- Éva... dit Walker pour tenter en vain de la calmer.
+- Éva... cria Walker pour tenter en vain de la ramener à l'ordre.
 
-- Vous êtes un lâche, un traître, votre père serait...
+- Pourquoi a-t-il fallut que ce soit vous! Vous êtes un lâche, un traître, votre père serait...
 
-- Évangéline! cria Walker d'une voix autoritaire, je suis déjà tout ces choses. Je le sais et je l'assume. À l'heure qu'il est je suis l'homme le moins lâche de l'univers. L'homme est incorrigible, j'ai essayé de me convaincre qu'il valait la peine d'être sauvé et je ni suis jamais arrivé, la fin est la seul solution. tout ce que. Je peut faire à présent c'est prevenir la prochaine espèce dominera l'univers. 
+- Évangéline! s'impatianta Walker d'une voix autoritaire, je suis déjà tout ces choses. Je le sais et je l'assume. À l'heure qu'il est je suis l'homme le moins lâche de l'univers. L'homme est incorrigible, j'ai essayé de me convaincre qu'il valait la peine d'être sauvé et je ni suis jamais arrivé, la fin est la seul solution. L'univers est un cycle et l'homme... -Walker marqua une pause comme pour repprendre ses esprits, puis repris- Et l'homme aussi...
+
+
+
+
+
+
+Tout ce que je peut faire à présent c'est prevenir la prochaine espèce qui dominera l'univers. 
 
 - Mais... Mais tu veux les prévenir de quoi? di Évangéline sur un ton hésitant tout en reprenant son calme.
 
