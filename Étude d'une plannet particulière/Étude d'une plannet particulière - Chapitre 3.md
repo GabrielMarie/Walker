@@ -1,11 +1,12 @@
 
 CHAPITRE ?
 
-À la mémoire d'une autre planète(a finir)
+À la mémoire d'une autre planète
+(a finir)
 
 Un peu de science pour la route
 
-Dans l'horizon, on peut apercevoir une petite particule noire se déplaçant a tout vitesse dans un désert, et laissant derrière elle, une longue trainer de sable jaune, c'est Walker qui se promène sur un quad antigravitationnel. Dans un des étuis de rangement du quad, se trouve la petite boule de blanche que possède Évangéline. Walker, les cheveux dans le vent, a contre-courant du jour qui défile, en direction de la nuit qui s'en vient, médite sur le but profond de la vie, si elle peut naitre dans des conditions impropices a son évolution.
+Dans l'horizon, on peut apercevoir une petite particule noire se déplaçant a tout vitesse dans un désert, et laissant derrière elle, une longue trainer de sable jaune, c'est Walker qui se promène sur un quad antigravitationnel. Dans un des étuis de rangement du quad, se trouve la petite boule blanche que possède Évangéline. Walker, les cheveux dans le vent, a contre-courant du jour qui défile, en direction de la nuit qui s'en vient, médite sur le but profond de la vie, si elle peut naitre dans des conditions impropices a son évolution.
 
 Et puis Waker se demandait si tous les forme de vie avait le même but? s'il Existait des objectifs autres que la simple survie? « Somme nous tant biaiser par notre propre instinct qu'il nous est impossible de voir que la vie puisse avoir d'autre but que la nôtre? Que ses buts soient totalement viables et valables, mais qu'étant donné nos gènes, il nous est impossible de les voir ou même de les lire? Est-ce que, ce que nous somme est une frontière à ce qu'on peut comprendre des autres espèces? » Alors que le philosophe se heurtait aux limites de l'empathie humaine, une autre question, bien plus intéressante, viens soudainement bousculer ses réflexions qui, je l'espère, en vale la plume: « Est-ce qu'il existe des sentiments qui sont incompréhensible, inexperimentable et inconnue pour l'homme? ».
 
