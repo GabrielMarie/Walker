@@ -1,7 +1,8 @@
 
 Chapitre VI
 
-Pour m'aimer(fini)
+Pour m'aimer
+
 
 Dans le vaisseau, comme toujours, règne une ambiance sombre, acre et sinistre. Des murmures résonnent de ces longs couloirs où l'on ne va jamais. Parfois même, quelques bestioles surgissent de ces dits Abysses. C'est la lie du vaisseau. Des créatures à six jambes, parfois d'un mètre de long, des carnivores, des meutes, des champignons, des oiseaux et des végétaux. En temps normal, Éva serait supposée les détruire à l'aide du système de défense intérieur du vaisseau, mais comme elle trouve le temps d'une lassitude, elle se sert de cet écosystème unique pour se divertir. Si vous saviez les espèces qu'on peut y trouver, certaines sont endémiques à ce vaisseau. Éva en découvre une nouvelle tous les mois.
 
@@ -21,7 +22,8 @@ Il y avait ses locaux égarée de couleur bleus, des bipeds qui vivaient dans de
 
 Mais la pire d'entre tous réside dans une pièce où même la lumière ne peut pénétrer. Il est blanc comme la glace, il est froid comme le marbre, il est la mort comme la vie. Il est l'homme et le dernier de son espèce. Que Dieu ait pitié de tous ceux qui oseront se mettre en travers de son chemin. Il est borné et même si son vaisseau semble aller nulle part, il sait toujours où il s'en va.
 
-- Que fait-il?dit Évangéline à voix haute 
+- Que fait-il?
+dit Évangéline à voix haute 
 
 - Il écrit, se répondit-elle à elle même.
 

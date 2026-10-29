@@ -2,7 +2,7 @@ Chapitre I
 3
 Exister pour rien (fini)
 
-Naration d'Évangéline
+À la demande de walker, voici le récits d'une conversation entre le capitaine walker et moi même.
 
 Le bureau du capitaine est une pièce sombre, rectangulaire et sans fenêtre. Les murs sont constituer d'un enchaînement de grande plaque d'acier qui font tout le tour de la pièce. Ses plaque d'acier sont d'un gris métallique recouvert d'une fine couche d'oxide que le temps, la poussière, la graisse, l’oxygène enrichie du vaisseau, et la négligence ont noirci. La monotonicité des murs est briser par la présence d'une porte coulissante encastré situer au centre d'un des murs.
 Cette pièce est habillé, comme seuls meubles, de deux bibliothèques dans un coins, d'une méridienne rouge coucher en hypoténuse dans le coins adjacent, d'un classeur dans l'autre coins, et finalement d'une secrétaire en métal dans le centre gauche de la pièce, qui vient bien évidement avec sa chaise en bois à quatre roulettes.
@@ -43,14 +43,7 @@ Walker l'interrompit.
 
 - Pourquoi a-t-il fallut que ce soit vous! Vous êtes un lâche, un traître, votre père serait...
 
-- Évangéline! s'impatianta Walker d'une voix autoritaire, je suis déjà tout ces choses. Je le sais et je l'assume. À l'heure qu'il est je suis l'homme le moins lâche de l'univers. L'homme est incorrigible, j'ai essayé de me convaincre qu'il valait la peine d'être sauvé et je ni suis jamais arrivé, la fin est la seul solution. L'univers est un cycle et l'homme... -Walker marqua une pause comme pour repprendre ses esprits, puis repris- Et l'homme aussi...
-
-
-
-
-
-
-Tout ce que je peut faire à présent c'est prevenir la prochaine espèce qui dominera l'univers. 
+- Évangéline! s'impatianta Walker d'une voix autoritaire, je suis déjà tout ces choses. Je le sais et je l'assume. À l'heure qu'il est je suis l'homme le moins lâche de l'univers. L'homme est incorrigible, j'ai essayé de me convaincre qu'il valait la peine d'être sauvé et je ni suis jamais arrivé, la fin est la seul solution. L'univers est un cycle et l'homme... -Walker marqua une pause comme pour repprendre ses esprits, puis repris- Et l'homme aussi... Tout ce que je peut faire à présent c'est prevenir la prochaine espèce qui dominera l'univers, éviter un autre cylce.
 
 - Mais... Mais tu veux les prévenir de quoi? di Évangéline sur un ton hésitant tout en reprenant son calme.
 
@@ -76,4 +69,8 @@ Tout ce que je peut faire à présent c'est prevenir la prochaine espèce qui do
 
 - C'est mon droit... mon droit à la fin. Répondit-il froidement.
 
-Car Walker est un homme froid et insensible  à l'amour. Un monstre qui, malgré tout c'est donne une mission très honorables. Mais qui est cette homme, pourquoi est-il le dernier et surtout qu'est t'il arrivé à l'humanité pour que le paroxysme de l'homme soit cette chose qui macabre qu'est le capitaine Walker? C'est le journal du dernier homme de l'humanité, ou l'homme qui tua l'humanité d'une seule balle.
+Car Walker est un homme froid et insensible  à l'amour. Un monstre qui, malgré tout c'est donne une mission très honorables. Mais qui est cette homme, pourquoi est-il le dernier et surtout qu'est t'il arrivé à l'humanité pour que le paroxysme de l'homme soit cette chose aussi macabre qu'est le capitaine Walker? C'est le journal du dernier homme de l'humanité, ou l'homme qui tua l'humanité d'une seule balle.
+
+Éva, terminé.
+
+Edit: Je ne pense pas que Walker apris le temps de rlir mon travail... dommage... pour lui :)

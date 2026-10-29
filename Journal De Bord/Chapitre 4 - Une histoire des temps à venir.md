@@ -1,12 +1,17 @@
 
 Chapitre IV
 
-Une histoire des temps à venir(fini regler le ps a la fin)
+Une histoire des temps à venir
+(fini regler le ps a la fin)
+
+Journal de bord du capitaine Walker, Matricule 20 011 214;
+Je voulais que l'avenir se souvienne de moi pour ce que je suis. Ainsi, voici une des multiples altercation que moi et évangeline umes et qui en dit long sur le faite d'être humain.
+
 
 La porte coulissante du bureau de Walker s'ouvre lentement et silencieusement pour s'arrêter au huitième de son ouverture maximale.
 
 - Monsieur Walker, êtes-vous réveillée? demanda Éva.
-
+ 
 - (Soupire) Tout d'abord, on dit « Capitaine » et non « monsieur ». Ensuite, tu sais très bien que je suis réveillée. J'ai mis des caméras dans ce vaisseau, alors faites en usage, dit-il sur un ton autoritaire et rabat-joie.
 
 - 《Tout d'abord》, répéta-t-elle d'un air moqueurs Capitaine de quoi? Il n'y a plus personne dans ce vaisseau, on y meurt d'ennui. Ensuite, il n'y a plus rien qui fonctionne ici, je suis en train de perdre tous mes sens, répliqua-t-elle.
@@ -15,7 +20,8 @@ La porte coulissante du bureau de Walker s'ouvre lentement et silencieusement po
 
 - Ha\... joua-t-elle, Je vois trouble, que se passe-t-il, mes sens, vais-je mourir?.
 
-  Au même moment les lumières rouges de l'alarme de sécurité se mirent à clignoter alors que l'alarme se mit a retentir.Walker était a bout de nerf, ce n'était pas la première fois qu'Évangeline faisait se numéro.
+  Au même moment les lumières rouges de l'alarme de sécurité se mirent à clignoter alors que l'alarme se mit a retentir.
+Walker était a bout de nerf, ce n'était pas la première fois qu'Évangeline faisait se numéro.
 
 - Tu fais m'énerve tellement, je n'arrive pas à croire que j'ai pu me retrouver avec une IA aussi stupide et inutile, dit-il en colère.
 
@@ -96,9 +102,11 @@ Walker pensa:"L'erreur...". En effet l'erreur, non seulement personne n'était l
 
 - Comment est-il possible d'avoir peur lorsque l'on ne connait pas la douleur?
 
-- Je n'ai pas peur!criât-elle encore plus fort en pesant chaque mots.
+- Je n'ai pas peur!
+criât-elle encore plus fort en pesant chaque mots.
 
-- Alors quoi!cria-t-il aussi fort.
+- Alors quoi!
+cria-t-il aussi fort.
 
   Elle répondit d'une voix fébrile;
 
